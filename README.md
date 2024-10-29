@@ -1,1 +1,1 @@
-# 284410.osinthijacking.itmo.xyz Yanychek
+# 284410.hijackthisdomain.itmo.xyz/
