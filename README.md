@@ -1,1 +1,1 @@
-# 284410.hijackthisdomain.itmo.xyz/
+# 284410.hijackthisdomain.itmo.xyz
